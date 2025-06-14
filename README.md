@@ -8,6 +8,7 @@
 
 ## Контакты
 ### Телеграм: @end_sova
-Тел.: +7 951 647 08 49
-E-mail: endersova@yandex.ru
-Резюме: 
+### Тел.: +7 951 647 08 49
+### E-mail: endersova@yandex.ru
+
+## Резюме: 
